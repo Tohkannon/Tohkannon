@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tohkannon
+- 👀 I’m interested in the rhythm game osu!
+- 🌱 I’m currently learning how to get better at motion design
+- 💞️ I’m looking to collaborate on nothing!
+- 📫 How to reach me tohkannon@gmail.com
